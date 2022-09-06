@@ -15,6 +15,6 @@ My name is Gaurav Kumar Jha, also i currently visit Techno Main everyday for my 
 - 🤔 I’m looking for help with Brushing my teeth.
 - 💬 Ask me about how C++,Flutter,Js..
 - 📫 How to reach me: gauravjha150800@gmail.com
-- 😄 
+- 😄 3d design is what i like about you.
 - ⚡ Fun fact: I'm monster under your computer.
 
